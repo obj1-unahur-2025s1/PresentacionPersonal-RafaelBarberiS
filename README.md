@@ -24,4 +24,4 @@
 ### Otra Información
   Me gustan los videojuegos (primer consola fue una PS1), el ánime y la musica electrónica.
   
-  Tengo un perro Sharpei llamado Anhur, quien no es muy amigable con personas desconocidad pero es muy protector con la familia con la que se crio.
+  Tengo un perro Sharpei llamado Anhur, le gusta pasear, no es muy amigable con personas desconocidad pero es muy protector con la familia con la que se crio.
